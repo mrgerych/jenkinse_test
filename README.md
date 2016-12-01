@@ -9,7 +9,3 @@ dfsdsfds
 fdgfdgdf
 fdsfdsfds
 fdgfdgfd
-vcxvcxvxc
-vcxvcxvcx
-gfdgdfgfdgdfgfdfdsfds
-gfhf
